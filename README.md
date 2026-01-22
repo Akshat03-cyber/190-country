@@ -1,2 +1,2 @@
-# 190-country
-country and their capitals with image
+# Hello i am  Akshat Rawat devloper of GLA University.
+Thank For visiting  My profile
